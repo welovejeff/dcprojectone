@@ -19,7 +19,7 @@ The 5 W's & 1 H Answered
     -   That introduction gave you an idea about what the overall objective of the project is. To see inspirations for the project look above. But it's up to everyone to elaborate on the exact resources included in the creative space.
 -   ### Why?
 
-    -   We need this. Plain and simple the community of DC would benefit from a center with so many resources. I think it's in everyones interest to make this dream a reality.
+    -   The community of DC would benefit from a center with so many resources. I think it's in everyones interest to make this dream a reality.
 
 -   ### Where?
 
